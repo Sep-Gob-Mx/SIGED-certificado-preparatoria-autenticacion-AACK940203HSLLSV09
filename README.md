@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AACK940203HSLLSV09
+AACK940203HSLLSV09
